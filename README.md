@@ -3,7 +3,6 @@ Rekomendasi Anime untuk kalian para Otaku Pemula
 
 __________________
 Anime Romance dimana Heroine nya awalnya benci kemudian jatuh cinta
-
 + Fuuka
 + Masamune's Revenge
 + Sousei no Onmyouji
@@ -17,7 +16,6 @@ Anime Romance dimana Heroine nya awalnya benci kemudian jatuh cinta
 + Nisekoi
 ______________________
 Anime dimana MC ke Isekai dan mendapatkan kekuatan OP
-
 + Isekai wa Smartphone to Tomo ni
 + Isekai Maou to Shokan Shoujo no Dorei Majutsu
 + Arifureta Shokugyo de Sekai Saikyou
@@ -29,7 +27,6 @@ Anime dimana MC ke Isekai dan mendapatkan kekuatan OP
 + No Game No Life
 ______________________
 Top Anime Romance/Action
-
 + Beatless
 + Kishuku Gakkou no Juliet
 + Devil Line
@@ -37,7 +34,6 @@ Top Anime Romance/Action
 + Shuumatsu Nani Shitemasu ka? Isogashii Desu ka? Sukutte Moratte Ii desu ka?
 ______________________
 Anime dimana MC OP tidak mengetahui kekuatan sebenarnya
-
 + Dakara Boku wa, H ga Dekinai
 + Tokyo Ravens
 + Kore wa Zombie desu ka?
