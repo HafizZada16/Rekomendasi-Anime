@@ -54,6 +54,7 @@ Anime dimana MC OP tapi tidak dapat mengendalikan kekuatannya
 + Mushibugyo
 ______________________
 Best Anime Romance 
++ Horimiya
 + Love Lab
 + Noucome
 + Inou-Battle wa Nichijou-Kei no Naka de
