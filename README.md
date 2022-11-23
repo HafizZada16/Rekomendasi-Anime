@@ -18,6 +18,7 @@ ______________________
 Anime dimana MC ke Isekai dan mendapatkan kekuatan OP
 + Isekai wa Smartphone to Tomo ni
 + Isekai Maou to Shokan Shoujo no Dorei Majutsu
++ Mushoku Tensei: Isekai Ittara Honki Dasu
 + Arifureta Shokugyo de Sekai Saikyou
 + Maou-sama, Retry!
 + Hataraku Maou-sama
