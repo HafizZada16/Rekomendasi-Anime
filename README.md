@@ -10,6 +10,7 @@ Anime Romance dimana Heroine nya awalnya benci kemudian jatuh cinta
 + Oda Nobuna no Yabou
 + Kaze no Stigma
 + Btooom!
++ Kimisen
 + Tonari no Kaibutsu-kun
 + Akame ga Kill
 + Kaichou wa Maid-sama!
