@@ -1,5 +1,5 @@
 # Rekomendasi-Anime
-Rekomendasi Anime untuk kalian para Wibu Pemula
+Rekomendasi Anime untuk kalian para Otaku Pemula
 
 __________________
 Anime Romance dimana Heroine nya awalnya benci kemudian jatuh cinta
