@@ -3,16 +3,16 @@ Rekomendasi Anime untuk kalian para Wibu Pemula
 
 __________________
 Anime Romance dimana Heroine nya awalnya benci kemudian jatuh cinta
-°Fuuka
-°Masamune's Revenge
-°Sousei no Onmyouji
-°Oda Nobuna no Yabou
-°Kaze no Stigma
-°Btooom!
-°Tonari no Kaibutsu-kun
-°Akame ga Kill
-°Kaichou wa Maid-sama!
-°Nisekoi
+>Fuuka
+>Masamune's Revenge
+>Sousei no Onmyouji
+>Oda Nobuna no Yabou
+>Kaze no Stigma
+>Btooom!
+>Tonari no Kaibutsu-kun
+>Akame ga Kill
+>Kaichou wa Maid-sama!
+>Nisekoi
 ______________________
 Anime dimana MC ke Isekai dan mendapatkan kekuatan OP
 °Isekai wa Smartphone to Tomo ni
