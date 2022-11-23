@@ -3,34 +3,58 @@ Rekomendasi Anime untuk kalian para Wibu Pemula
 
 __________________
 Anime Romance dimana Heroine nya awalnya benci kemudian jatuh cinta
->Fuuka
->Masamune's Revenge
->Sousei no Onmyouji
->Oda Nobuna no Yabou
->Kaze no Stigma
->Btooom!
->Tonari no Kaibutsu-kun
->Akame ga Kill
->Kaichou wa Maid-sama!
->Nisekoi
+
++ Fuuka
+
++ Masamune's Revenge
+
++ Sousei no Onmyouji
+
++ Oda Nobuna no Yabou
+
++ Kaze no Stigma
+
++ Btooom!
+
++ Tonari no Kaibutsu-kun
+
++ Akame ga Kill
+
++ Kaichou wa Maid-sama!
+
++ Nisekoi
 ______________________
 Anime dimana MC ke Isekai dan mendapatkan kekuatan OP
-°Isekai wa Smartphone to Tomo ni
-°Isekai Maou to Shokan Shoujo no Dorei Majutsu
-°Arifureta Shokugyo de Sekai Saikyou
-°Maou-sama, Retry!
-°Hataraku Maou-sama
-°Drifter
-°Yojou Senki
-°Tensei Shitara Slime Datta Ken
-°No Game No Life
+
++ Isekai wa Smartphone to Tomo ni
+
++ Isekai Maou to Shokan Shoujo no Dorei Majutsu
+
++ Arifureta Shokugyo de Sekai Saikyou
+
++ Maou-sama, Retry!
+
++ Hataraku Maou-sama
+
++ Drifter
+
++ Yojou Senki
+
++ Tensei Shitara Slime Datta Ken
+
++ No Game No Life
 ______________________
 Top Anime Romance/Action
-°Beatless
-°Kishuku Gakkou no Juliet
-°Devil Line
-°Toaru Hikuushi e no Koiuta
-°Shuumatsu Nani Shitemasu ka? Isogashii Desu ka? Sukutte Moratte Ii desu ka?
+
+° Beatless
+
+° Kishuku Gakkou no Juliet
+
+° Devil Line
+
+° Toaru Hikuushi e no Koiuta
+
+° Shuumatsu Nani Shitemasu ka? Isogashii Desu ka? Sukutte Moratte Ii desu ka?
 ______________________
 Anime dimana MC OP tidak mengetahui kekuatan sebenarnya
 °Dakara Boku wa, H ga Dekinai
